@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **ankitkanzariya48983@gmail.com**
 
-- 📄 Know about my experiences [https://flowcv.com/resume/rt9g7pq8ps](https://flowcv.com/resume/21mwa1dqsq)
+- 📄 Know about my experiences https://flowcv.com/resume/plrs5st48c
 
 - ⚡ Fun fact **I am so sirious :)**
 
